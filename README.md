@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Bruno-LGS
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning python
-- 📫 How to reach me Bruno.#7047
+- 📫 Reach me via discord: Bruno.#7047
 <!---- 💞️ I’m looking to collaborate on --->
 
 <!---
